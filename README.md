@@ -1,1 +1,0 @@
-# Can_saruhan_Webd-6201
